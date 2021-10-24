@@ -8,6 +8,13 @@ tags:
 - skinny
 - blackGuy
 ---
+I am a little nervous  but very excited at finally getting to talk about this .  I feel betrayed by the fact I didn't know this sooner. 
+<!-- excerpt -->
+I am a little nervous  but very excited at finally getting to talk about this .  I feel betrayed by the fact I didn't know this sooner. 
+I love  chubby, fat or even  obese women. I am a small guy and I thought I could never get the chance to get a fat woman to  be with me.
+I also was embarassed because I thought about what other people would think and how that would effect my life. Family and and friends included.
+This blog page will discuss my experiences opinions as well as my fantasies about  plus size women.
+
 # This is a big deal for me......
 
 I am a little nervous  but very excited at finally getting to talk about this .  I feel betrayed by the fact I didn't know this sooner. 

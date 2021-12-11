@@ -1,14 +1,16 @@
 ---
-title: The  Big Deal.
-date: 2021-10-24
+title:  Technology is our last chance to save our relationships
+date:  2021-12-11
 tags:
-- BBW
-- plus-size
-- dating
-- skinny
-- blackGuy
+-  Coral
+-  Sex
+
+-  Psychology
+-  Technology
+-  relationships
+-  Sexual starvation
 ---
-I am a little nervous  but very excited at finally getting to talk about this .  I feel betrayed by the fact I didn't know this sooner. 
+""
 <!-- excerpt -->
 I am a little nervous  but very excited at finally getting to talk about this .  I feel betrayed by the fact I didn't know this sooner. 
 I love  chubby, fat or even  obese women. I am a small guy and I thought I could never get the chance to get a fat woman to  be with me.

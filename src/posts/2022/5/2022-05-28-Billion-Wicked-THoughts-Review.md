@@ -13,3 +13,6 @@ My blog post about a billion wicked thoughts
 
 <!--Excerpt-->
 ###  Happy New Year🎊  ( I know it is late but 😂)
+
+
+{% asset_img 'billion-wicked-thoughts.thumbnail.jpg' 'Billion-wicked-thoughts' %}

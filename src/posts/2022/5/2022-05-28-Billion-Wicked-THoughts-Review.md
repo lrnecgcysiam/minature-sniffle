@@ -9,9 +9,9 @@ tags:
 -  Desire
 ---
 
-Two maverick neuroscientists use the world's largest psychology experiment--the Internet--to study the private activities of millions of men and women around the world, unveiling a revolutionary and shocking new vision of human desire that overturns conventional thinking. For his groundbreaking sexual research, Alfred Kinsey and his team interviewed 18,000 people, relying on them to honestly report their most intimate experiences. --From publisher description.
+Two maverick neuroscientists use the world's largest psychology experiment--the Internet--to study the private activities of millions of men and women around the world, 
 
-<!--Excerpt-->
+<!-- excerpt -->
 
 
 

@@ -1,5 +1,5 @@
 ---
-title:  My Thoughts on the Billion Wicked Thoughts Book
+title:  My Thoughts on A Billion Wicked Thoughts Book
 date:  2022-05-28
 tags:
 -  Book
